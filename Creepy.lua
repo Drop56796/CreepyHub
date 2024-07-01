@@ -1,5 +1,4 @@
 --furry is gay
---if you is furry else you are dead 
 --Game over Furries 
 --God are on person's side
 --Furry is lol and he is loser 
